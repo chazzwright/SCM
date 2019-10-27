@@ -1,3 +1,3 @@
 # SCM
 Source code managment assignment
-bggghhkkkhhkkh
+I dont know what ive been told. 
